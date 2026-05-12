@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MathType for PC | MathType for Windows automation with rare MathType for PC | MathType for Windows Automation | data-visualization + 3D-plotting. Featuring
 
 
 
